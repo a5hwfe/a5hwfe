@@ -5,3 +5,22 @@
 ㅤㅤ ㅤㅤㅤㅤㅤㅤㅤ  Me n my [ash](https://github.com/squiddhusb) ♡⁠♡⁠
 <hr>
 <br>
+<p align="center">
+
+  
+
+[stupid wemmbu](https://github.com/Wemmb4Lx)
+<p align="center">
+
+  
+
+[stupid wifies husband](https://github.com/5lanetlord)
+<p align="center">
+
+  
+
+[cutest lie](https://github.com/itslie)
+<p align="center">
+
+  
+
