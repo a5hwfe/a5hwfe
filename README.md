@@ -1,8 +1,16 @@
 <br>
 <hr>
 <p align="center"><a href='https://postimages.org/' target='_blank'><img src='https://i.postimg.cc/02cczNFC/images.jpg' border='0' alt='images'></a>
-  
-ㅤㅤ ㅤㅤㅤㅤㅤㅤㅤ  Me n my [ash](https://github.com/squiddhusb) ♡⁠♡⁠
+
+<p align="center"> <table>
+    <tr>
+      <td>   
+        $\color{orange}{\text{ㅤㅤㅤㅤㅤㅤㅤLovelyㅤㅤㅤㅤㅤㅤㅤ}}$ $\color{green}{\text{ㅤㅤㅤㅤㅤㅤㅤ Married ㅤㅤㅤㅤㅤㅤㅤ}}$
+  </td>
+    </tr>
+  </table>
+  <br> 
+ㅤㅤ ㅤㅤㅤㅤㅤㅤㅤ  
 <hr>
 <br>
 <p align="center">
