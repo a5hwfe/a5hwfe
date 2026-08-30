@@ -4,4 +4,4 @@
 
 <p align="left">
   
-<a href='https://verityytm.atabook.org' target='_blank'><img src='https://i.postimg.cc/jDJ9zwTD/397-sin-titulo-20260830161158.png' border='0' alt='397-sin-titulo-20260830161158'></a>
+<a href='https://verityytm.atabook.org' target='_blank'><img src='https://i.postimg.cc/jDJ9zwTD/397-sin-titulo-20260830161158.png' border='0' alt='397-sin-titulo-20260830161158'></a><a href='https://verityytm.straw.page' target='_blank'><img src='https://i.postimg.cc/D8Gd6qSM/397-sin-titulo-20260830161207.png' border='0' alt='397-sin-titulo-20260830161207'></a>
