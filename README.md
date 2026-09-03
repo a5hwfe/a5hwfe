@@ -1,7 +1,5 @@
 </p>
 
-ㅤㅤ ㅤㅤ  ![](https://img.shields.io/badge/real%20baked%20goods%20♡⁠-yellow)
+ㅤㅤ ㅤㅤ  ![](https://img.shields.io/badge/dear%20azure%20.⁠-purple)
 
-<p align="left">
-  
-<a href='https://verityytm.atabook.org' target='_blank'><img src='https://i.postimg.cc/jDJ9zwTD/397-sin-titulo-20260830161158.png' border='0' alt='397-sin-titulo-20260830161158'></a><a href='https://verityytm.straw.page' target='_blank'><img src='https://i.postimg.cc/D8Gd6qSM/397-sin-titulo-20260830161207.png' border='0' alt='397-sin-titulo-20260830161207'></a>
+[ata](https://verityytm.atabook.org) . [straw](https://verityytm.straw.page) & [insta](https://instagram.com/zam.sgf)
